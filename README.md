@@ -1,1 +1,0 @@
-# BUCEA-diary.github.io
